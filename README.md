@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Mihai009113
+- 👀 I’m interested in making discord bots and sell them
+- 🌱 I’m currently learning coding
+- 💞️ i created 1 bot for nuking servers (costs 10 USD paypal or euro and 10 in bitcoin)
+- 📫 How to reach me my discord is mihai_ff#8284
